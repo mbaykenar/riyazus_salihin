@@ -1,5 +1,5 @@
 # riyazus_salihin
-İmam Nevevi'nin, Rasulullah (sav)'in hadis'i şeriflerini ve yine konuların başında konu ile ilgili ayetleri içeren toplamda 2o bölüm, 372 kısım ve 1896 hadis'i şerifi içeren meşhur kitabı Riyazu's Salihin'i bazen arkadaşlarla sohbet ortamlarında, bazen de kendi başıma tetkik ederken dersleri kayda alıp "Mehmet Burak Aykenar" ismindeki YouTube kanalımda aşağıdaki linkteki oynatma listesinde yayınlıyorum:
+İmam Nevevi'nin, Rasulullah (sav)'in hadis'i şeriflerini ve yine konuların başında konu ile ilgili ayetleri içeren toplamda 20 bölüm, 372 kısım ve 1896 hadis'i şerifi içeren meşhur kitabı Riyazu's Salihin'i bazen arkadaşlarla sohbet ortamlarında, bazen de kendi başıma tetkik ederken dersleri kayda alıp "Mehmet Burak Aykenar" ismindeki YouTube kanalımda aşağıdaki linkteki oynatma listesinde yayınlıyorum:
 
 https://www.youtube.com/playlist?list=PLZyLAHn50932tsk5mdfRIEl6sDh6YTypj
 
